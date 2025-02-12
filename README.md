@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TomXplr
+- 👀 I’m interested in programming & photography
+- 🌱 I’m currently learning Android Studio programming
+- 💞️ I don't want to cooperate with others temporarily
+- 📫 You can contact me through my email:lcrusually@outlook.com
+- 😄 Pronouns: Photography enthusiast & Metro enthusiast
+- ⚡ Fun fact: Secrecy
